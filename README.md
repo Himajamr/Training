@@ -1,2 +1,2 @@
 # Training
-Pramati-intern
+Pramati-Himaja 
